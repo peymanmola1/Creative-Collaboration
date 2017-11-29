@@ -30,6 +30,7 @@ https://drive.google.com/drive/folders/1x-Lu8a-MasAoCxQ-vYKQE_VigqeNUw51?usp=sha
 ### Formative Presentation
 https://drive.google.com/file/d/1Cys9EHuMUlNbgb3v2M319PpAKaN8OFlJ/view?usp=sharing
 ### Summative Presentation
+https://drive.google.com/file/d/1qRWmpzPtx3XgWMgrILRYa8BxcUrqgRaq/view?usp=sharing
 
 ## Blogs
 
